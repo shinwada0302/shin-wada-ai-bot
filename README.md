@@ -1,0 +1,1 @@
+# shin-wada-ai-bot
